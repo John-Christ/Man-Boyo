@@ -6,4 +6,4 @@
 ---
 Johnny Brozer - Fuck that shit!
 
-[![](https://archive.org/details/johnnybrozercoverfuckthatshit)](https://archive.org/details/work7johnnybrozerfuckthatshit)
+[![](https://www.youtube.com/watch?v=0_ssFXTlZNg)
