@@ -4,6 +4,5 @@
 ---
 ## Below are display our latest videos and photos. Here is where you can checkout our latest releases
 ---
-Johnny Brozer - Fuck that shit!
+>Johnny Brozer - Fuck that shit!
 
-![](<iframe width="560" height="315" src="https://www.youtube.com/embed/boJewW5Mnxs" frameborder="0" allow="accelerometer;autoplay;encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>)
