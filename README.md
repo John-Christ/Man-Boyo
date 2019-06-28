@@ -6,4 +6,4 @@
 ---
 >Johnny Brozer - Fuck that shit!
 
-[![Nobody](https://www.youtube.com/edit?o=U&ar=3&video_id=boJewW5Mnxs)](https://youtu.be/boJewW5Mnxs"Nobody")
+[![Nobody](https://www.youtube.com/edit?o=U&ar=3&video_id=boJewW5Mnxs)](https://www.youtube.com/watch?v=boJewW5Mnxs&feature=youtu.be"Nobody")
