@@ -6,3 +6,4 @@
 ---
 >Johnny Brozer - Fuck that shit!
 
+brew install ffmpeg --with-libvpx
