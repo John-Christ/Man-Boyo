@@ -2,6 +2,8 @@
 
 # Welcome to Boyo Lifstyle.
 ---
-## Below are display our lastest videos and photos. Here is where you can check our latest releae 
-GitHub supports emoji!
-:happy:
+## Below are display our latest videos and photos. Here is where you can checkout our latest releases
+---
+Johnny Brozer - Fuck that shit!
+
+[![alt text](https://archive.org/details/johnnybrozercoverfuckthatshit)](https://archive.org/details/work7johnnybrozerfuckthatshit"Johnny-Brozer - Fuck that shit")
