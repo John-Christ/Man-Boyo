@@ -6,5 +6,8 @@
 ---
 Johnny Brozer - Fuck that shit!
 
-![Project video](<iframe width="560" height="315" src="https://www.youtube.com/embed/boJewW5Mnxs" frameborder="0" allow="accelerometer; autoplay;encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>)
-    
+' <div>
+     <video>
+       (<iframe width="560" height="315" src="https://www.youtube.com/embed/boJewW5Mnxs" frameborder="0" allow="accelerometer;autoplay;encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>)
+     </video>
+  </div> '
