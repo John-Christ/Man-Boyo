@@ -25,3 +25,22 @@ You can click on this imaage and watch the video on **YouTube**.
 You can click on this imaage and watch the video on **YouTube**.
 
 [![Nobody](https://ia801408.us.archive.org/22/items/capturedecran6/Capture%20d%E2%80%99%C3%A9cran%20(6).png)](https://www.youtube.com/watch?v=boJewW5Mnxs)
+
+> Smirfylu- colors
+
+You can click on this imaage and watch the video on **YouTube**
+
+[![Colors](https://ia801408.us.archive.org/22/items/capturedecran6/Capture%20d%E2%80%99%C3%A9cran%20(6).png)](https://www.youtube.com/watch?v=ECWM_h1dNC4&t=2s)
+
+> Smirfylu- Africa
+
+You can click on this imaage and watch the video on **YouTube**
+
+[![Africa](https://ia601401.us.archive.org/35/items/smirfylucolourscover/-Smirfylu%20-Colours%20cover.jpg)](https://www.youtube.com/watch?v=lO7kBdgiXpc)
+
+> Jump- Up
+
+You can click on this imaage and watch the video on **YouTube**
+
+[![Jump up](https://ia801407.us.archive.org/30/items/jump1copy/jump1%20-%20Copy.jpeg)](https://www.youtube.com/watch?v=r-0qeBxbhhE)
+
