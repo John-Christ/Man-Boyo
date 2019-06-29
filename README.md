@@ -2,7 +2,7 @@
 
 # Welcome to Boyo Lifstyle.
 ---
-## Below are display our photos links of our latest releases.
+## Below are posted photos links of our latest releases.
 ---
 ### Follow us on:
 
