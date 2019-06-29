@@ -6,7 +6,7 @@
 ---
 >Johnny Brozer - Fuck that shit!
 
-[![Nobody](https://ia801407.us.archive.org/26/items/johnnybrozercoverfuckthatshit/Johnny%20Brozer_cover%20fuck%20that%20shit.jpg)](https://www.youtube.com/watch?v=2efF13m7P70)
+[![Fuck that shit](https://ia801407.us.archive.org/26/items/johnnybrozercoverfuckthatshit/Johnny%20Brozer_cover%20fuck%20that%20shit.jpg)](https://www.youtube.com/watch?v=2efF13m7P70)
 
 
-[!][](https://ia801408.us.archive.org/22/items/capturedecran6/Capture%20d%E2%80%99%C3%A9cran%20(6).png)](https://www.youtube.com/watch?v=boJewW5Mnxs)
+[![Nobody](https://ia801408.us.archive.org/22/items/capturedecran6/Capture%20d%E2%80%99%C3%A9cran%20(6).png)](https://www.youtube.com/watch?v=boJewW5Mnxs)
