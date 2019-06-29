@@ -2,11 +2,21 @@
 
 # Welcome to Boyo Lifstyle.
 ---
-## Below are display our latest videos and photos. Here is where you can checkout our latest releases
+## Below are display our photos links of our latest releases.
 ---
+### Follow us on:
+
+[Instagram](https://www.youtube.com/redirect?q=https%3A%2F%2Finstagram.com%2Fboyolife403%2F&redir_token=B_f5hhttlG6HaGoXY9s3OTh2rTd8MTU2MTg5Nzc4NkAxNTYxODExMzg2&event=video_description&v=boJewW5Mnxs)
+
+[Twitter](https://www.youtube.com/redirect?q=https%3A%2F%2Ftwitter.com%2F%40boyolife403%2F&redir_token=B_f5hhttlG6HaGoXY9s3OTh2rTd8MTU2MTg5Nzc4NkAxNTYxODExMzg2&event=video_description&v=boJewW5Mnxs)
+
+[FaceBook](https://www.youtube.com/redirect?q=https%3A%2F%2Ftwitter.com%2F%40boyolife403%2F&redir_token=B_f5hhttlG6HaGoXY9s3OTh2rTd8MTU2MTg5Nzc4NkAxNTYxODExMzg2&event=video_description&v=boJewW5Mnxs)
+>
+
 >Johnny Brozer - Fuck that shit!
 
 [![Fuck that shit](https://ia801407.us.archive.org/26/items/johnnybrozercoverfuckthatshit/Johnny%20Brozer_cover%20fuck%20that%20shit.jpg)](https://www.youtube.com/watch?v=2efF13m7P70)
 
+> Smirfylu- Nobody
 
 [![Nobody](https://ia801408.us.archive.org/22/items/capturedecran6/Capture%20d%E2%80%99%C3%A9cran%20(6).png)](https://www.youtube.com/watch?v=boJewW5Mnxs)
