@@ -45,5 +45,5 @@ You can click on this imaage and watch the video on **YouTube**
 [![Jump up](https://ia801407.us.archive.org/30/items/jump1copy/jump1%20-%20Copy.jpeg)](https://www.youtube.com/watch?v=r-0qeBxbhhE)
 
 
-                                    (c) All rights reserved, Boyo Lifestyle 2019
+(c) All rights reserved, Boyo Lifestyle 2019
 
